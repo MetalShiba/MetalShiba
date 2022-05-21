@@ -4,7 +4,7 @@
 
 **Comic**
 
-*“Metal Shiba is faced with a final and mysterious threat. The "Makers" are invading Dogeville, reaping its citizens faster and faster. In a race against *time, he will have to commit all his strength to understand what is happening and how to stop the catastrophe.”*
+*“Metal Shiba is faced with a final and mysterious threat. The "Makers" are invading Dogeville, reaping its citizens faster and faster. In a race against time, he will have to commit all his strength to understand what is happening and how to stop the catastrophe.”*
 
 Metal Shiba is the ultimate superhero inspired by the Shiba meme. The idea is to then create a paper version and promote it at the most famous comic book international fairs (such as Lucca Comics). This will benefit not only the comic itself but also the token and community built around it. Comics are created by professional artists and We are therefore going to sell real "Works of Art” of artistic value.
 
